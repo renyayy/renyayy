@@ -1,2 +1,2 @@
-# 和田 連弥 (わだれんや)
-つよつよエンジニアになりてえなぁ... (趣味は格闘技です😇)
+# Renya Wada
+- a student in Kobe university
